@@ -36,8 +36,8 @@
 
 
 ## Special Thanks To
-* [ KILLADY JOCKER FFC ](http://kckjoker.github.io) 
+* [ KILLADY TOXIDE FFC ](http://TOXIDE-SER.github.io) 
 
 ## Sosmed
 * [`Instagram admin`](https://www.instagram.com/__death_shifter_?r=nametag)
-* [`WhatsApp Admin`](http://wa.me/916282670349)
+* [`WhatsApp Admin`](http://wa.me/919048329892)
